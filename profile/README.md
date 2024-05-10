@@ -11,3 +11,5 @@
 - Innovation meets imagination!
 
 - Let your creativity soar like never before! ✨💻
+
+- Learning by doing!
